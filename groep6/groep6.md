@@ -2,58 +2,32 @@ Groep 6 - Ferron, Teffer, Noah en Timothy
 
 Gebaseerd op: Love Hurts - als dramatische robot-rockballad
 
-Vers 1
-Bits and Bolts, die robot sloeg hard,
-staal op staal en vonken in de nacht.
-Teffer matchte, Noah hield de lijn,
-Timothy zei: "Nog een beurt, het komt wel fijn."
-Ferron bouwde door aan elk nieuw stuk,
-tot die gladiator weer een upgrade had.
+Jolene, Jolene, Jolene, Jolene
+**Noah, Ferron, Teffer, Timothy**
 
-Refrein
-Bots hurt, bolts hurt,
-zeker in die arena daar.
-Maar matchen helpt,
-en voor je 't weet staat weer een winnaar klaar.
-Bits and Bolts werd steeds wat sterker,
-slag voor slag en bout voor bout.
-Groep 6 bleef bouwen, winnen,
-tot die robot alles houdt.
+I'm begging of you please don't take my man
+**Jullie zijn er en het is verdiend**
 
-Vers 2
-Ramses wilde match-3 met meer,
-niet alleen wat tegels op een rij.
-Dus kwam daar een ijz'ren vechter,
-met een camera die draaide als een film erbij.
-Elke clash zag er geweldig uit,
-effecten vlogen breed door heel het scherm.
-En na elk potje kwam er weer een munt,
-voor nog meer platen, power en bescherming.
+Jolene, Jolene, Jolene, Jolene
+**Noah, Ferron, Teffer, Timothy**
 
-Refrein
-Bots hurt, bolts hurt,
-zeker in die arena daar.
-Maar matchen helpt,
-en voor je 't weet staat weer een winnaar klaar.
-Bits and Bolts werd steeds wat sterker,
-slag voor slag en bout voor bout.
-Groep 6 bleef bouwen, winnen,
-tot die robot alles houdt.
+Please don't take him just because you can
+**Het is nu zo dat jij vakman bent**
 
-Brug
-Ferron had z'n reis al vastgelegd,
-dus vanavond mist hij bijna de start.
-Maar als hij om zeven uur binnenwandelt,
-dan krijgt hij hier alsnog z'n erekaart.
-Want ook al zat hij even niet in zaal,
-zijn werk staat hier gewoon van staal.
+He talks about you in his sleep
+**De start was zwaar het ging nog niet**
 
-Laatste refrein
-Bots hurt, bolts hurt,
-maar dit team kwam sterk vooruit.
-Bits and Bolts, mooi gebouwd,
-en grafisch zag het er geweldig uit.
-Ferron, Teffer, Noah, Timothy,
-hebben hier iets moois gebracht.
-Dus applaus voor deze makers,
-groep 6 heeft goed gevochten en gelacht.
+And there's nothing I can do to keep
+**Dat swipen werkte ook nog niet**
+
+From crying when he calls your name
+**die combo's ja die waren het net niet**
+
+Jolene
+And I can easily understand
+**Maar toch kwam het weer op het spoor**
+
+How you could easily take my man
+**Je pakten het op en gingen ervoor**
+But you don't know what he means to me
+**En moet je nu eens kijken hoe je scoort**

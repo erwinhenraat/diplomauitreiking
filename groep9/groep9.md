@@ -1,63 +1,52 @@
 Groep 9 - Leon, Merijn en Florian
 
-Gebaseerd op: Je loog tegen mij - als energieke meezinger
+_We zitten samen in de kamer_
+**Wees nu voorzichtig met je brommer**
 
-Vers 1
-Twee kevers op pad,
-de buit stond al klaar.
-Florian hield de wacht,
-Leon keek waar het lag.
-Merijn stuurde mee,
-met z'n phone in de hand.
-Zo kropen zij naar binnen,
-door het hele keverland.
+_En de stereo staat zacht_
+**De ander had stress voor een nacht**
 
-Refrein
-Die zandloper loog tegen mij,
-ja, die loog tegen mij.
-Zelfs van onder liep hij leeg,
-wat een vreemde sluwe gein.
-Maar Leon, Merijn, Florian,
-die hielden mooi de lijn.
-Met Bugglers in dat hol,
-was de buit gewoon van hen.
+_En ik denk nu gaat 't gebeuren_
+**In verband met kleine foutjes**
 
-Vers 2
-Edwin wilde teamwork,
-geen kever op zichzelf.
-Dus praten, plannen, pikken,
-want niks ging hier vanzelf.
-De tijd liep veel te snel,
-de druk stond strak erop.
-Maar juist door al dat overleggen
-werd dit project top.
+_Hierop heb ik zo lang gewacht_
+**Gelukkig niets meer aan de hand**
 
-Refrein
-Die zandloper loog tegen mij,
-ja, die loog tegen mij.
-Zelfs van onder liep hij leeg,
-wat een vreemde sluwe gein.
-Maar Leon, Merijn, Florian,
-die hielden mooi de lijn.
-Met Bugglers in dat hol,
-was de buit gewoon van hen.
+_Niemand in huis de deur op slot_
+**Het probleem is opgelost**
 
-Brug
-Merijn sleutelde aan z'n brommer,
-dat ging heel even mis.
-Een vinger bij de ketting,
-dat is niet wat handig is.
-En Leon wachtte langer
-op nieuws van zijn examen.
-Dus zingen wij voor hem vandaag
-gewoon een stukje harder samen.
+_Mijn avond kan niet meer kapot_
+**De avond kan niet meer kapot**
 
-Laatste refrein
-Die zandloper loog tegen mij,
-maar groep 9 won toch wel.
-Ze maakten van twee kevers
-een vrolijk inbraakspel.
-Leon, Merijn, Florian,
-die leverden hier af.
-Dus applaus voor deze makers,
-want Bugglers was te straf.
+_Suzanne_
+**Florian**
+_Suzanne_
+**en Leon**
+_Suzanne_
+**Merijn**
+
+_Ik ben stapelgek op jou_
+**Hoorde hier in het gebouw**
+**Het diploma krijg je nou**
+
+_Ik leg mijn arm om haar schouders_
+**Jullie zijn hier met je ouders**
+
+_Streel haar zachtjes door haar haar_
+**Ook al zijn jullie al klaar**
+
+**Ik kan het bijna niet geloven**
+
+_Voorzichtig kussen wij elkaar_
+**zo tegen het einde van het jaar**
+
+**En opeens sta je vanavond hier**
+
+**En zingt een valse stem aan de andere kant van de microfoon**
+
+**En ik denk bij mezelf waarom nu waarom ik waarom**
+
+**We feesten**
+**We gaan feesten**
+**We feesten**
+**We gaan lekker uit ons dak**

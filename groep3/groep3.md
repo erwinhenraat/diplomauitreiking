@@ -1,63 +1,31 @@
 Groep 3 - Marinus, Safwan en Rein
 
-Gebaseerd op: Le Freak - als discofeest-knipoog in sfeer en refrein
+Ahhh freak out!
+Team 3 chemie
 
-Vers 1
-Marinus aan de knoppen,
-Safwan pakt de maat.
-Rein houdt heel het feestje
-precies op tijd en straat.
-Twee phones als controllers,
-een dj op het scherm.
-Samen moest het strak zijn,
-want Lynx keek lekker scherp.
+freak out!
+Team 3 chemie
 
-Refrein
-Mix die beat, ja mix die beat,
-hou dat feestje in de lucht.
-Mix die beat, ja mix die beat,
-niemand wil hier stilte terug.
-Marinus, Safwan, Rein daar,
-gooien samen alles raak.
-Mix die beat, ja mix die beat,
-tot de vloer weer trillen gaat.
+freak out!
+Team 3 chemie
 
-Vers 2
-Pickup-and-play was helder,
-maar timing bleef gemeen.
-Net als alles lekker liep,
-zat er weer een nootje scheef.
-"Jij pakt links, ik pak rechts,
-die slider moet nog mee."
-Zo werd hun mengpaneel uiteindelijk
-een machine van oké.
+Rein , Marinus en Safwan die vieren Feest!
+luister nu, ze doen dat als een beest.
 
-Refrein
-Mix die beat, ja mix die beat,
-hou dat feestje in de lucht.
-Mix die beat, ja mix die beat,
-niemand wil hier stilte terug.
-Marinus, Safwan, Rein daar,
-gooien samen alles raak.
-Mix die beat, ja mix die beat,
-tot de vloer weer trillen gaat.
+Veel lol voor de spelers van de game
+Met je Phone , ben jij de DJ.
 
-Brug
-Alleen die test-opname,
-die is opeens verdwenen.
-Die footage ging op wereldreis,
-maar niet meer terug verschenen.
-Geen ramp, want hun ontwerpen
-en verbeterwerk was sterk.
-Ze draaiden door, ze finetuneden,
-en leverden topwerk.
+Ahhh freak out!
+Team 3 chemie
 
-Laatste refrein
-Mix die beat, ja mix die beat,
-wat een mooie eindshow werd.
-Mix die beat, ja mix die beat,
-heel die opdracht afgewerkt.
-Marinus, Safwan, Rein samen,
-zetten hier de zaal op scherp.
-Mix die beat, ja mix die beat,
-groep 3 die levert werk.
+freak out!
+Team 3 chemie
+
+freak out!
+Team 3 chemie
+
+Doe maar mee dat wordt een dolle boel.
+Na ponging een val jij ook van je stoel
+
+Rein , Marinus en Safwan die vieren Feest!
+luister nu, ze doen dat als een beest.

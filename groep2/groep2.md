@@ -1,63 +1,43 @@
 Groep 2 - Gino, Julie, Nikki en Kiana
 
-Gebaseerd op: You aint seen nothing yet - als stevige rock-meezinger
+We all live in a yellow submarine - beatles
 
-Vers 1
-Gino matcht de eerste rij,
-Julie vult de meter bij.
-Nikki roept: "Die boss gaat neer,"
-Kiana swipet nog een keer.
-Op een phone, strak en paraat,
-stond BIO-BREACH al vroeg op straat.
-Ramses keek en zag meteen:
-dit is meer dan matchen alleen.
+In the town where I was born
+**En lopen door een gang**
+Lived a man who sailed to sea
+**En wij zijn ontzettend bang**
 
-Refrein
-Nog niet klaar, nog niet klaar,
-BIO-BREACH stond strak paraat.
-Nog een match, nog een klap,
-en die eindbaas ging weer plat.
-Gino, Julie, Nikki, Kiana,
-lieten heel die zaal wel zien:
-als je dacht "dit loopt al lekker,"
-had je nog niet alles gezien.
+And he told us of his life
+**En daar staat die enge Baas**
+In the land of submarines
+**Die wil weer vechten is dat verdiend?**
 
-Vers 2
-Door te matchen liep het vol,
-healen werd een slimme rol.
-Eerst verdedigen, dan slaan,
-zo bleef iedereen mooi staan.
-Mooi gebouwd en goed in beeld,
-alsof elke boss echt leefde.
-Op mobiel liep alles strak,
-dat was precies hun sterkste vak.
+So we sailed on to the sun
+**We zijn nog steeds ondzettend bang**
 
-Refrein
-Nog niet klaar, nog niet klaar,
-BIO-BREACH stond strak paraat.
-Nog een match, nog een klap,
-en die eindbaas ging weer plat.
-Gino, Julie, Nikki, Kiana,
-lieten heel die zaal wel zien:
-als je dacht "dit loopt al lekker,"
-had je nog niet alles gezien.
+'Til we found a sea of green
+**Tot we snappen hoe je de game bediend**
 
-Brug
-Presenteren deden ze sterk,
-dat was zichtbaar topvakwerk.
-Nikki haalde haar motorrijbewijs,
-dus die reed hier bijna al prijs.
-Alleen dat wachten op die uitslag
-duurde nét een tik te lang.
-Dus vandaag gaat extra applaus
-voor haar door heel de hele gang.
+And we lived beneath the waves
+**Toen ging die Baas er eindelijk aan**
 
-Laatste refrein
-Nu is 't klaar, nu is 't klaar,
-BIO-BREACH staat helemaal daar.
-Gino, Julie, Nikki, Kiana,
-maakten iets van topformaat.
-Ramses kreeg een sterke slice,
-mooi, mobiel en goed gezien.
-Groep 2 die heeft vandaag
-gewoon iets heel gaafs verdiend.
+In our yellow submarine
+**De game gewonnen eerlijk verdiend**
+
+We all live in a yellow submarine
+**Gino, Nikki, Kiana en Julie....**
+Yellow submarine, yellow submarine
+**Kiana en Julie...Kiana en Julie**
+We all live in a yellow submarine
+**Ze maakten een mobile game in Unity**
+Yellow submarine, yellow submarine
+**En toffe game in Unity en game in Unity**
+
+We all live in a yellow submarine
+**Gino, Nikki, Kiana en Julie....**
+Yellow submarine, yellow submarine
+**Kiana en Julie...Kiana en Julie**
+We all live in a yellow submarine
+**Vechten met de Baas van Gino en Nikki**
+Yellow submarine, yellow submarine
+**Gino en Nikki .. Kiana en Julie**

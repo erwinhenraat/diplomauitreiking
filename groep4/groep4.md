@@ -1,63 +1,40 @@
 Groep 04 - Christaan, Owen, Akari en Ivo
 
-Gebaseerd op: Stil in mij - als dromerige marine-ballad
+Rick Astley
+Never gonna give you up!
 
-Vers 1
-Op een schip van staal en licht,
-liep je door de late wacht.
-Christaan hoorde: "Dek naar stuur,"
-en daar lag weer nieuwe vracht.
-Owen dacht, Akari wees,
-Ivo schoof het puzzelstuk.
-Zo werd op dat vreemde schip
-elke kleine missie leuk.
+We're no strangers to love
+**Christiaan en Owen**
 
-Refrein
-En er vaart een schip in mij,
-vol met licht en open zee.
-Door hun game voel je heel even
-hoe het leven varen deed.
-Kleine puzzels, groot gevoel,
-driedee dromen op het dek.
-Groep vier hield de koers mooi vast,
-recht vooruit en nooit van streek.
+You know the rules and so do I
+**Maar ook Akari en Ivo**
 
-Vers 2
-De marine zocht een spel,
-dat je voelen, spelen liet.
-Niet met folders vol met tekst,
-maar met gangen, dek en licht.
-Geen matroos die bromt van plicht,
-maar een droomboot die beweegt.
-Zo liet groep vier op een scherm
-zien hoe varen voelen deed.
+A full commitment's what I'm .. thinking of
+**Als Mariniers varen wij... Op een boot**
 
-Refrein
-En er vaart een schip in mij,
-vol met licht en open zee.
-Door hun game voel je heel even
-hoe het leven varen deed.
-Kleine puzzels, groot gevoel,
-driedee dromen op het dek.
-Groep vier hield de koers mooi vast,
-recht vooruit en nooit van streek.
+You wouldn't get this from any other guy
+**Ze bouwden samen aan...een super toffe game**
 
-Brug
-Ze testten scherp en stelden bij,
-tot alles beter spelen wou.
-En presenteren deden zij
-alsof je al aan boord wou.
-Je dacht eerst: dit wordt heel strak,
-maar toen kwam die droom voorbij.
-En voor je het goed besefte,
-voer dat schip al door je hoofd.
+I just wanna tell you how I'm feeling
+**Nu gaan we dat samen lekker vieren**
 
-Laatste refrein
-En er vaart een schip in mij,
-vol met licht en open zee.
-Voor de marine bouwden zij
-iets dat jong publiek begreep.
-Kleine puzzels, groot gevoel,
-driedee dromen op het dek.
-Groep vier hield de koers mooi vast,
-recht vooruit en nooit van streek.
+Gotta make you understand
+**Ja er is feest hier in de tent**
+
+Never gonna give you up
+**We hebben hier een gorte boot**
+
+Never gonna let you down
+**Het diploma is van jou**
+
+Never gonna run around and desert you
+**We zien je hopelijk nog wel eens terug**
+
+Never gonna make you cry
+**Het huilen is nu voorbij**
+
+Never gonna say goodbye
+**Het was toch ook wel fijn**
+
+Never gonna tell a lie and hurt you
+**Bij ons op het MA .. het is klaar nu**

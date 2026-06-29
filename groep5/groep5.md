@@ -1,49 +1,40 @@
 Groep 5 - Mike, Keith, Gerben en Jonas
 
-Gebaseerd op: Delilah - als uitbundige saloon-meezinger
+de sJonnies - Dans je de hele nacht met mij?
 
-Vers 1
-In die saloon vloog meteen al het stof van de vloer,
-Mike stond te swipen alsof hij daar geboren was ervoor.
-Keith riep: "Match die sterren, anders gaan we hier eraan,"
-Gerben hield de combo levend, Jonas bleef maar doorslaan.
+Laa lala lalalala laa
+Lalala laa lala lalalala laa
+Lalala laalaa lalalalaalaalaa lalaalaalaala laalalaa
+Laalalaala laalaalaalaalaa
 
-Refrein
-Brawl Saloon, wat een wilde mooie chaos werd dat ding.
-Brawl Saloon, elke swipe voelde alsof er weer een cowboy zong.
-Matchen, duiken, pijlen raken,
-niemand kreeg hier rust cadeau.
-Mike, Keith, Gerben, Jonas,
-maakten van die brawl een show.
+Dans je de hele nacht met mij
+**Jonas , Gerben, Keith en Mike**
 
-Vers 2
-Ramses wilde match-3 met meer dan alleen steentjes op een rij,
-dus kwam daar een cowboy knokkend door dat scherm met flinke blij.
-Eerst verdedigen, dan beuken, dan weer snel een stap opzij,
-en als je nét te laat wou swipen, kreeg je gratis stof erbij.
+Ik dans het liefste met jou maar wat doe jij
+**Je Swipet een tegel, geeft klap, een knoppartij**
 
-Refrein
-Brawl Saloon, wat een wilde mooie chaos werd dat ding.
-Brawl Saloon, elke swipe voelde alsof er weer een cowboy zong.
-Matchen, duiken, pijlen raken,
-niemand kreeg hier rust cadeau.
-Mike, Keith, Gerben, Jonas,
-maakten van die brawl een show.
+Dit moet het feest zijn dat ik gaag vieren zou
+**Dit moet de game zijn die Ramses spelen wou**
 
-Brug
-Zelfs een jongen van nog negen
-kon het spel niet laten gaan.
-Werd wel boos omdat het lastig was,
-maar bleef koppig verder slaan.
-En dat zegt genoeg, want eerlijk,
-als een kind niet stoppen kan,
-dan weet je: zet die app maar klaar,
-dit wordt werk voor de store ervan.
+Alleen, alleen met jou
+**De game is echt heel WOW!**
 
-Laatste refrein
-Brawl Saloon, wat een topresultaat kwam hier vandaan.
-Brawl Saloon, van ontwerpen tot presenteren strak gedaan.
-Mike moest langer wachten, jammer,
-op die uitslag van zijn jaar.
-Dus vandaag is extra applaus hier
-voor dit team volledig klaar.
+En daarom dans toch de hele nacht met mij
+**En daarom Jonas, Gerben Keith en Mike**
+
+Als dit een droom is dan droom ik jou erbij
+**Je Swipet een tegel, geeft klap, een knoppartij**
+
+En voor de zon komt heb jij allang gezegd
+**En nu je hier staat ben jij gediplomeerd**
+
+Die droom van jou is... niet zo slecht
+**Je ben nu klaar.... met dit gevecht**
+
+Ja, die droom van jou en mij is echt
+**Ja, dat julie hier nu staan is echt**
+
+Laa lala lalalala laa
+Lalala laa lala lalalala laa
+Lalala laalaa lalalalaalaalaa lalaalaalaala laalalaa
+Laalalaala laalaalaalaalaa
