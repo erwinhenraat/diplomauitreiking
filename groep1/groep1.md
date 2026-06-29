@@ -1,63 +1,50 @@
-Groep 1 - Wessel, Dylan en Isaac
+Wessel, Dylan en Isaac
 
-Gebaseerd op: Bloed, Zweet en Tranen - als knipoog in sfeer en meezinggevoel
+Bloed zweet tranen
 
-Vers 1
-Drie mannen voor een scherm,
-een eindbaas veel te groot.
-Wessel riep: "Ik pak die flank,"
-Dylan dook uit nood.
-Isaac hield het hoofd koel,
-en telde elke fase mee.
-Met telefoons in hun hand,
-liet Echo Protocol zich zien.
+Wessel heeft het goed gedaan
+En niets verkeerd gedaan
+In zijn tijd hier op deze school
 
-Refrein
-Met stress en met deadlines,
-hebben zij 't gedaan.
-Wessel, Dylan, Isaac,
-zijn daar blijven staan.
-En sloeg die baas weer keihard,
-dan riepen zij: "Nog een!"
-Zo werd Echo Protocol
-een knaller om te zien.
+Een lach, met tranen
+Hij liet het allemaal zien
+Naar het beste blijven streven
+Met veel vrienden in de klas
 
-Vers 2
-Pickup-and-play, zei Lynx,
-dus helder vanaf start.
-Maar die baas had weer een plan,
-en trof ze recht in 't hart.
-"Jij naar links en jij naar rechts,
-ik heal wel als het moet."
-Zo wonnen zij door goed overleg,
-en timing die was goed.
+Met Wessel, Dylan en Isaac
+Zei ik: “dat zit wel goed”
+Met Wessel, Dylan en Isaac
+Zei ik: “Vrienden dag Vrienden, dat levert wat op
 
-Refrein
-Met stress en met deadlines,
-hebben zij 't gedaan.
-Wessel, Dylan, Isaac,
-zijn daar blijven staan.
-En sloeg die baas weer keihard,
-dan riepen zij: "Nog een!"
-Zo werd Echo Protocol
-een knaller om te zien.
+En die Dylan dan
+Die heel veel dingen kan
+Maar ook
+heel veel dingen vermeed
 
-Brug
-Geen held die solo sprint,
-geen speler die maar maait.
-Je won hier door elkaar te horen,
-precies zoals het draait.
-Van testen tot finetunen,
-tot alles lekker liep.
-Zo bouwden zij een co-op game,
-waar iedereen van geniet.
+Maar uiteindelijk
+heeft hij geleverd
+En alles wat hij kon
+Hij liet het zien En krijgt nu een diploma,
+helemaal verdiend
 
-Laatste refrein
-Met stress en met deadlines,
-hebben zij gescoord.
-Voor Lynx stond daar een topgame,
-van teamwork in akkoord.
-Dus applaus voor deze makers,
-want dit was echt speciaal.
-Wessel, Dylan en Isaac,
-verdienen dit allemaal.
+Met Wessel, Dylan en Isaac
+Zei ik: “dat zit wel goed”
+Met Wessel, Dylan en Isaac
+Zei ik: “Vrienden dag Vrienden, dat levert wat op
+
+En Isaac,
+heeft alles goed gemaakt
+Kon al heel veel,
+toen hij hier kwam
+
+Maar hij bleef aan de gang
+En toch veel bij geleerd
+Werkte graag alleen
+Ja, echt alleen
+Geen gezeur aan z’n kop
+Ja, rot nou toch op
+
+Met Wessel, Dylan en Isaac
+Zei ik: “dat zit wel goed”
+Met Wessel, Dylan en Isaac
+Zei ik: “Dat gaat lukken vrienden, dat levert wat op
